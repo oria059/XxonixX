@@ -1,2 +1,2 @@
 # XxonixX
-"Why are we still hear, just to suffer?"
+"Why are we still here, just to suffer?"
